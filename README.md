@@ -1,4 +1,4 @@
 # ksknysn.github.io
-I am a data scientist you can offer new design to me. Thanks
+I am a data scientist and if you can offer me a new webpage design i will be appreciated. Thanks
 
 <a href="https://ksknysn.github.io/">https://ksknysn.github.io/</a>
